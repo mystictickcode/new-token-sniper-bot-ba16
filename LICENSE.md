@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with smart MEV Bot for new token sniper bot | back-running & price-impact-analysis. Featuring back-running and price-impact-analysis, it's
 
 
 
